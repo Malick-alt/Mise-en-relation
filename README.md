@@ -3,7 +3,7 @@ Nous vous créons tous les outils pour vous faciliter votre aventure sur interne
 
 Commence par t’asseoir, seule. Pense, regarde en arrière et fait une liste de tes réussites et de ce qui a échoué dans ta vie jusqu’au moment où tu viens de t’asseoir.
 
-Le plus important est d’avoir une vue générale de ta vie et d’être honnête avec toi-même. Il y a des choses pour lesquelles tu n’est pas la personne pour les aboutir. Tu les connais toutes: t’as trop peu de patience pour ceci, t’es pas une personne qui sert à mener des autres, pour les renndre enthousiastes… Ou, tu est une demoiselle qui est convaincue que tout que je viens d’écrire n’a rien à voir avec la réalité et que tu es une jeune femme qui va tjrs au bout.
+Le plus important est d’avoir une vue générale de ta vie et d’être honnête avec toi-même. Il y a des choses pour lesquelles tu n’es pas la personne pour les aboutir. Tu les connais toutes: t’as trop peu de patience pour ceci, t’es pas une personne qui sert à mener des autres, pour les renndre enthousiastes… Ou, tu est une demoiselle qui est convaincue que tout que je viens d’écrire n’a rien à voir avec la réalité et que tu es une jeune femme qui va tjrs au bout.
 
 Un cliché pê? La vie est courte, LE moment, c’est maintenant. Ne perds pas de temps à des types qui te draînent de ton énergie, qui n’apportent rien qui vaut la moindre chose à tes plans. N’aie pas peur de te séparer de ceux qui veulent surfer profitant des choix qui sont les tiennes. Ose dire 'non’. Apprends à gérer les emmerdeurs.
 
