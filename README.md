@@ -1,5 +1,5 @@
 # Mise-en-relation
-Nous vous créons tous les outils pour vous faciliter votre aventure dur internet pour aller plus loin dans vos affaires et relations avec les autres .
+Nous vous créons tous les outils pour vous faciliter votre aventure sur internet pour aller plus loin dans vos affaires et relations avec les autres .
 
 Commence par t’asseoir, seule. Pense, regarde en arrière et fait une liste de tes réussites et de ce qui a échoué dans ta vie jusqu’au moment où tu viens de t’asseoir.
 
